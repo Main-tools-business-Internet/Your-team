@@ -1,37 +1,39 @@
 ## Main tools business Internet
-
-You can use the [editor on GitHub](https://github.com/eternalincome/Your-team/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Eternal income
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/eternalincome/Your-team/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+# You can use the [Eternal income](https://www.warriorspecialforces.com/) Earn money online,Work at home!
+### Start using computer resources more efficiently and make money on it!
+<center>
+<table>
+<tbody>
+<tr>
+<td><a href="https://get.cryptobrowser.site/9/1420081" target="_blank" rel="nofollow"><img src="animated-s5-02.gif" alt="Download CryptoTab Browser with built-in mining algorithm" width="468" height="60"></a></td>
+</tr>
+</tbody></table>
+</center>
+<center>
+<table>
+<tbody>
+<tr>
+<td><a href="https://www.kryptex.org/?ref=4e9b58e8" target="_blank" rel="nofollow"><img src="https://static.wixstatic.com/media/4a3ddd_1ee4afcec09f47d48ec451464a955d22~mv2.gif" alt="Kryptex mines cryptocurrency and pays you bitcoins or real-world money" width="468" height="60"></a></td>
+</tr>
+</tbody></table>
+</center>
+# BEST INVESTMENT TODAY!
+<center>
+<table>
+<tbody>
+<tr>
+<td><a href="https://cooldoggy.top/index.php?boss=46149" target="_blank" rel="nofollow"><img src="https://static.wixstatic.com/media/4a3ddd_663027e558a94862930c3dfc7278bd71~mv2.gif" alt="cooldoggy.top" width="150" height="600"></a></td><td>
+<a href="https://moon-miner.biz//?ref=aakanab" target="_blank" rel="nofollow"><img src="https://static.wixstatic.com/media/4a3ddd_67432def42674820b071f4e2d3fbcb6a~mv2.gif" alt="Moon-Miner is a Bitcoin mining & trading company" width="150" height="600"></a></td><td>
+<a href="https://10cent.biz/ref/aakanab" target="_blank" rel="nofollow"><img src="https://static.wixstatic.com/media/4a3ddd_074572d42b47491ca2df56db2d7cd3c4~mv2.gif" alt="AFFORDABLE INVESTMENTSFOR EVERYONE" width="130" height="600"></a></td>
+</tr>
+</tbody></table>
+</center>
+# [MEDOGE](https://medoge.online/?r=11255) Cloud Mining Service
+# [Link](https://medoge.online/?r=11255) and ![Image](MEDOGE Cloud Mining Service.gif)
+## Eternal income! Everything you need to earn money online for FREE!
+# [Link](https://www.warriorspecialforces.com/) and ![Image](Eternal income.jpg)
+# For more details see- [Main tools business Internet](https://www.warriorspecialforces.com/).
+## Earn money online!
+# 1000s of people worldwide are earning quiet fortunes, from their homes, even while they sleep. Are you next?[Get started for free right now!](http://yourteam.ws/)
+### Earn money online,Work at home!
+[contact](https://github.com/eternalincome)
